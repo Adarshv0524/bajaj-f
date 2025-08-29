@@ -1,3 +1,7 @@
 # bajaj-f
 
-assesment
+Adarsh Kumar Verma
+
+22BAI10028
+
+VIT Bhopal University
